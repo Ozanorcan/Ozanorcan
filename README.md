@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Ozanorcan
+- 👋 Hi, I’m @Ozanorcan , Co-Founder and Ceo at ENGOVI LLC.
 - 👀 I’m interested in VR platforms.
 - 🌱 I’m currently learning product management.
 - 💞️ I’m looking to collaborate on ...
